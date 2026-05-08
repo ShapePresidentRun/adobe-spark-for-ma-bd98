@@ -1,4 +1,4 @@
-
+Enhance Adobe Spark for macOS with Adobe Spark for macOS advanced Tool: AI-enhanced-editing & custom-filters, the #1 tool. Includes AI-enhanced-editing and custom-filters for a
 
 
 
